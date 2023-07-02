@@ -1,7 +1,7 @@
 ## Oberhauser Global
 
 Oberhauser Global is the umbrella organization of the 
-Oberhauser Dynasty. It bundles services, initiatives 
+Oberhauser family. It bundles services, initiatives 
 and resources in the most effective way and makes 
 them accessible to members.
 
